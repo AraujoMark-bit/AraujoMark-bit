@@ -1,4 +1,4 @@
-# Marcos Araujo ⚜
+# Marcos Araujo 
 
 #
 #### <b>- 🛠 Atualmente Aprendendo e desenvolvendo projetos em: 
